@@ -4,3 +4,5 @@ Estou na fase de regra de negócios e front
 Pausado devido aos estudos da faculdade
 
 Terminarei em dezembro 2024 quando estiver de férias
+
+meu site pessoal https://7lsistemas.com.br/
